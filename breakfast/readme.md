@@ -28,4 +28,4 @@ Pour from the blender into the bowl and enjoy with a spoon!
 Allergy warnings: This recipe contains dairy and almond.
 
 ### Codemates #
-all of us
+Team 5 All of us!
