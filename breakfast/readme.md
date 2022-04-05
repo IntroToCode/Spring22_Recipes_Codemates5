@@ -34,6 +34,6 @@ Test Line
 
 ### Notes:
 
-
+Allergy warnings: This recipe contains dairy and almond.
 
 ### Codemates #
