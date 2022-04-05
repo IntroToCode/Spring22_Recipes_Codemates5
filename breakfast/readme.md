@@ -1,32 +1,17 @@
-****Blueberry Smoothie****
-
-## Servings: 
-4-6 persons 
-## Time to prepare: 
-20 min
-## Ingredients:
-12 ounces bucatini pasta
-⅓ cup extra-virgin olive oil, more for drizzling
-3 garlic cloves, sliced
-3 pints cherry tomatoes, divided
-2½ tablespoons capers
-2 teaspoons lemon zest
-1 teaspoon balsamic vinegar
-1 teaspoon sea salt
-¼ to ½ teaspoon red pepper flakes
-Freshly ground black pepper
-1½ cups fresh basil
-¼ cup pecorino, Parmesan, or Vegan Parmesan, optional
 
 ## Equipment needed:
-
+Blender and bowl
 
 ## Steps for preparation:
 
+Get out all of your ingredients and measure them according to the ingredients above.
 
+Place all the ingredients in a blender, and blend until smooth! If the smoothie is too thick to blend, add more almond milk as needed to reach your desired consistency.
+
+Pour from the blender into the bowl and enjoy with a spoon!
 
 ### Notes:
 
-
+Allergy warnings: This recipe contains dairy and almond.
 
 ### Codemates #
