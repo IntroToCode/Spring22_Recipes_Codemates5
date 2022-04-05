@@ -25,6 +25,6 @@ serve with desired toppings and lime wedges for squeezing.
 
 ### Notes:
 
-
+Allergy warnings: This recipe contains gluten, garlic, and chiles.
 
 ### Codemates #
