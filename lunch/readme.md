@@ -5,7 +5,9 @@ This white bean soup recipe is creamy, comforting, zesty, and bright! We love to
 Serves 4 to 6
 
 ## Time to prepare: 
-Prep Time: 10 mins ; Cook Time: 35 mins ; Total Time:  45 mins
+Prep Time: 10 mins
+Cook Time: 35 mins 
+Total Time: 45 mins
 
 ## Ingredients:
 
