@@ -1,9 +1,9 @@
 ****Blueberry Smoothie****
 
 ## Servings: 
-
+4-6 persons 
 ## Time to prepare: 
-
+20 min
 ## Ingredients:
 12 ounces bucatini pasta
 ⅓ cup extra-virgin olive oil, more for drizzling
