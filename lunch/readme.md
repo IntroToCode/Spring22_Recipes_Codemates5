@@ -42,6 +42,6 @@ Remove from the heat and stir in the lime juice. Season to taste, and
 
 ### Notes:
 
-
+Soak the bean for 12h will make it easier to cook!
 
 ### Codemates #
