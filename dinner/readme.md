@@ -1,4 +1,4 @@
-# Replace with recipe name
+# Cherry Tomato Pasta
 
 ## Servings: 
 4-6 persons 
