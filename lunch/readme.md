@@ -41,7 +41,7 @@ beans. Simmer for 10 minutes.
 Remove from the heat and stir in the lime juice. Season to taste, and
 
 ### Notes:
-
+Allergy warnings: This recipe contains beans! Spicy warning!
 Soak the bean for 12h will make it easier to cook!
 
 ### Codemates #
